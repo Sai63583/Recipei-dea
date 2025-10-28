@@ -46,7 +46,7 @@ Meet `Sai Ganesh Siddani ` 🙋🏻‍♂️ , An avid learner with a passion fo
 ![image](https://github.com/user-attachments/assets/ef83a11d-9313-4486-9c4e-1fc0fa3aa09f)
 ![image](https://github.com/user-attachments/assets/0256fd88-9748-4593-bead-4d58fb1feb2b)
 ![image](https://github.com/user-attachments/assets/37e077b9-13b9-480b-bf6b-00d843bcd444)
-![image](https://github.com/user-attachments/assets/b5800213-53b7-4c6f-9d43-b8aa6b8058d6)
 ![image](https://github.com/user-attachments/assets/db914ce1-e151-4d96-a55a-c4d87d0d66fd)
-![image](https://github.com/user-attachments/assets/2f48cfe8-1b9e-4320-b3b7-9dd8de18a7b6)
+
+
 
